@@ -1,4 +1,3 @@
-# Chapter 4: Emotional Regulation Techniques
 
 ## Emotional Regulation Techniques
 

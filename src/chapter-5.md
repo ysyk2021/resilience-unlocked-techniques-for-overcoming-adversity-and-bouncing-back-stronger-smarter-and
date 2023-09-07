@@ -1,5 +1,3 @@
-Chapter 5: Coping Skills
-========================
 
 Coping skills are essential for resilience in the face of adversity. In this chapter, we will explore strategies for developing effective coping skills, including problem-solving, social support, and relaxation techniques. We will also discuss the benefits of coping skills for improved resilience, resourcefulness, and recovery.
 

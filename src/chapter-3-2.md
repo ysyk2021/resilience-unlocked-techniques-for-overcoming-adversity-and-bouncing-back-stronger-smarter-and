@@ -1,5 +1,3 @@
-Strategies for Developing a Resilient Mindset, including Acceptance, Optimism, and Gratitude
-=======================================================================================================================
 
 In this chapter, we will explore the importance of developing a resilient mindset and discuss strategies for cultivating acceptance, optimism, and gratitude.
 

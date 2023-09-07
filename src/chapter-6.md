@@ -1,5 +1,3 @@
-Chapter 6: Self-care Practices
-==============================
 
 Self-care practices are essential for maintaining resilience in the face of adversity. In this chapter, we will explore strategies for incorporating self-care into daily life, including exercise, sleep hygiene, and nutrition. We will also discuss the benefits of self-care practices for improved physical and mental health, and resilience.
 

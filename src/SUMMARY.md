@@ -42,3 +42,4 @@
   - [The Benefits of Sustaining Resilience for Continued Personal and Professional Development and Success](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

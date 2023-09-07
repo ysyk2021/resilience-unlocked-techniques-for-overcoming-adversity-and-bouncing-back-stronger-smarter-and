@@ -1,5 +1,3 @@
-Chapter 3: Mindset Shifts
-=========================
 
 Strategies for Developing a Resilient Mindset, including Acceptance, Optimism, and Gratitude
 --------------------------------------------------------------------------------------------

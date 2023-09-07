@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Trauma
-============================
 
 Trauma can have a significant impact on an individual's life, but it is possible to overcome and heal from its effects. In this chapter, we will explore strategies for overcoming trauma and healing, including seeking professional help, self-care, and mind-body techniques. We will also discuss the benefits of overcoming trauma for improved resilience, growth, and post-traumatic growth.
 

@@ -1,5 +1,3 @@
-Chapter 10: Sustaining Resilience
-=================================
 
 Resilience is not a fixed trait, but a dynamic process that requires ongoing effort and dedication. In this chapter, we will explore strategies for sustaining resilience by maintaining positive habits, preventing burnout, and managing future challenges. We will also discuss the benefits of sustaining resilience for continued personal and professional development and success.
 

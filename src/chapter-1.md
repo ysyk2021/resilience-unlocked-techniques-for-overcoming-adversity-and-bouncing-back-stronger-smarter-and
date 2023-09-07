@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Understanding the Importance of Resilience in Today's World
 -----------------------------------------------------------

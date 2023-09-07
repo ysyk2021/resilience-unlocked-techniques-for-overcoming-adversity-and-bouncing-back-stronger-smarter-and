@@ -1,5 +1,3 @@
-Chapter 8: Finding Meaning and Purpose
-======================================
 
 Finding meaning and purpose is essential for resilience in the face of adversity. In this chapter, we will explore strategies for connecting with meaning and purpose, including values clarification, goal-setting, and spiritual practices. We will also discuss the benefits of finding meaning and purpose for improved direction, fulfillment, and resilience.
 

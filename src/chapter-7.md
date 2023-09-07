@@ -1,5 +1,3 @@
-Chapter 7: Building Positive Relationships
-==========================================
 
 Building positive relationships is an important component of resilience. In this chapter, we will explore strategies for building positive relationships, including communication, empathy, and forgiveness. We will also discuss the benefits of building positive relationships for improved social support, connection, and resilience.
 
@@ -30,5 +28,4 @@ Conclusion
 ----------
 
 Building positive relationships is essential for maintaining resilience in the face of adversity. By implementing strategies such as effective communication, empathy, gratitude, open-mindedness, and forgiveness, individuals can strengthen their relationships with others and gain access to emotional and practical support during times of stress or crisis. The benefits of building positive relationships include improved social support, connection, and resilience. It is important to prioritize building positive relationships as a means of enhancing overall wellbeing and building long-term resilience.
-
 

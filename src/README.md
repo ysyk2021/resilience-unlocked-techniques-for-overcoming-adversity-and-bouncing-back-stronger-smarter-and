@@ -1,4 +1,4 @@
-# Introduction
+
 
 In life, we all face challenges and setbacks that test our resilience. Whether it's a personal tragedy, a professional setback, or a global crisis, our ability to bounce back from adversity is what allows us to grow, learn, and thrive in the face of difficulty.
 
@@ -9,3 +9,7 @@ Through this book, readers will gain a deeper understanding of what resilience i
 Whether you are facing a difficult time in your personal life or looking to improve your resilience in the workplace, "Resilience Unlocked" offers valuable insights and practical tools for developing mental fortitude, improving emotional wellbeing, and achieving greater success and satisfaction in life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
