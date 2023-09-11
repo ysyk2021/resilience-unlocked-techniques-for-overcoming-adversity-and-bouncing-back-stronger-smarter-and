@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Incorporating Self-Care into Daily Life
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-care is a vital component of resilience, allowing individuals to recharge, maintain well-being, and overcome adversity. This chapter explores strategies for incorporating self-care into daily life, focusing on exercise, sleep hygiene, and nutrition.
 

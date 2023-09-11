@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Emotional Regulation Techniques for Improved Emotional Intelligence, Stress Reduction, and Relaxation
-================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of practicing emotional regulation techniques. These techniques not only help individuals manage their emotions effectively but also enhance emotional intelligence, reduce stress, and promote relaxation.
 

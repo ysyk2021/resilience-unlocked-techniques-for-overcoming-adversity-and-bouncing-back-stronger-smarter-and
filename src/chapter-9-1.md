@@ -1,5 +1,4 @@
-Chapter 17: Overcoming Trauma
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Traumatic experiences can have a profound impact on individuals, often leaving them feeling overwhelmed and vulnerable. However, with the right techniques and support, it is possible to overcome trauma and rebuild resilience. In this chapter, we will explore effective strategies for overcoming trauma and moving forward towards a brighter future.
 

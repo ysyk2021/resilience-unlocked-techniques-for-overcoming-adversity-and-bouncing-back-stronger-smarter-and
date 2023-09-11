@@ -1,5 +1,4 @@
-Chapter 8: Self-Care Practices
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-care is essential for maintaining and enhancing resilience. This chapter explores various self-care practices that promote physical, mental, and emotional well-being, enabling individuals to overcome adversity and thrive.
 

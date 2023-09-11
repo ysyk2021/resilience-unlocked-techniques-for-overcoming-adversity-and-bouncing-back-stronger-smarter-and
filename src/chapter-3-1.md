@@ -1,5 +1,4 @@
-Chapter 14: Mindset Shifts
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing a resilient mindset is key to overcoming adversity and bouncing back stronger, smarter, and better equipped. In this chapter, we will explore various mindset shifts that can empower individuals to build resilience and thrive in the face of challenges.
 

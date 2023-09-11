@@ -1,5 +1,4 @@
-Chapter 7: Emotional Regulation Techniques
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional regulation is a critical skill for building resilience and effectively navigating adversity. This chapter explores various techniques that can help individuals regulate their emotions and cultivate greater emotional well-being.
 

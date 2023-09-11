@@ -1,5 +1,4 @@
-Chapter 13: Coping Skills
-=========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing effective coping skills is essential for resilience, as it allows individuals to navigate and manage adversity in a healthy and adaptive way. In this chapter, we will explore various coping strategies and techniques that can help individuals overcome challenges and bounce back stronger, smarter, and better equipped.
 

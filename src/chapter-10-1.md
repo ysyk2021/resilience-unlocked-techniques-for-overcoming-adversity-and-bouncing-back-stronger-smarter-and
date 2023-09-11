@@ -1,5 +1,4 @@
-Chapter 17: Sustaining Resilience
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building resilience is only the first step in navigating adversity. Sustaining resilience over the long term requires ongoing effort and intentional practices. In this chapter, we will explore various techniques and strategies that can help individuals maintain their resilience and continue to thrive even in the face of ongoing challenges.
 

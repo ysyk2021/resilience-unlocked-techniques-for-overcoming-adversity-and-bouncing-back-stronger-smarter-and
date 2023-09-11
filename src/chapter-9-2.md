@@ -1,5 +1,4 @@
-Chapter 17: Strategies for Overcoming Trauma and Healing
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for overcoming trauma and healing. We'll discuss the importance of seeking professional help, practicing self-care, and incorporating mind-body techniques into your healing journey.
 

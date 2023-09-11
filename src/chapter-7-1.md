@@ -1,5 +1,4 @@
-Chapter 12: Building Positive Relationships
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building positive relationships is a fundamental aspect of resilience, as strong social connections can provide support, encouragement, and a sense of belonging during times of adversity. In this chapter, we will explore strategies and techniques for cultivating and nurturing relationships that contribute to resilience.
 

@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Understanding the Cognitive, Emotional, and Behavioral Factors Associated with Resilience
-====================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the cognitive, emotional, and behavioral factors associated with resilience is essential for developing effective strategies to overcome adversity. In this chapter, we will explore various techniques and approaches that can help individuals gain a deeper understanding of these factors and enhance their resilience.
 

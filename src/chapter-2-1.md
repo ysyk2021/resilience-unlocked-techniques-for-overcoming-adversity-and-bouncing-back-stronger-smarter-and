@@ -1,5 +1,4 @@
-Chapter 10: The Science of Resilience
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a fascinating psychological trait that enables individuals to navigate through adversity and come out stronger on the other side. In this chapter, we will explore the science behind resilience and how it can be cultivated and enhanced.
 
